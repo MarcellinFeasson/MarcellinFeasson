@@ -1,1 +1,1 @@
-astrophysicist. cofounder renaissance ai. past: epfl, eth zurich, harvard cfa. 
+astrophysicist. previously: epfl, eth zurich, harvard cfa. 
